@@ -5,7 +5,7 @@
  - Phải kí kết hợp đồng dài hơn chục trang A4 mới xong, hợp đồng thường được gửi về tận nhà.
  - Kinh nghiệm 1: VCSB là tốt nhất, mấy cái khác dễ bị bán thông tin để gọi quảng cáo.
  - Kinh nghiệm 2: Khi tạo tài khoản sẽ có quyền lựa chọn có người hỗ trợ hoặc không, tốt nhất là chọn không vì đỡ phiền.
- - Kinh nghiệm 3: Khi tôi tạo cả 2 khoản SSI, HSC thì trung bình mỗi ngày bị 2 cuộc gọi spam dụ đầu tư chứng khoán này nọ, nhất là VNdirect dụ mở tài khoản đau cả đầu, có lần khi bắt máy người ta còn biết tôi đang giữ bao nhiêu cổ, ở đâu luôn, không biết SSI hay HSC đã bán thông tin.
+ - Kinh nghiệm 3: Tạo taì khoản xong sẽ bị gọi spam hàng ngày, nên dùng sim thứ 2.
 
 ### Sách:
 1. Lý thuyết hộp Darvas
